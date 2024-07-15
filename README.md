@@ -1,1 +1,1 @@
-Aprire il documentazione.pdf per le istruzioni
+Aprire documentazione.pdf per le istruzioni
